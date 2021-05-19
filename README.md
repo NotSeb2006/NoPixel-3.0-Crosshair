@@ -1,6 +1,6 @@
 # NoPixel 3.0 - Crosshair.
 
-Custom Made - Job Center
+Custom Made - Crosshair.
 
 • Inspired by.
 
